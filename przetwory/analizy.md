@@ -160,6 +160,8 @@ Wyniki:
 - partia D w porównaniu z dżemem z 2017 o wiele bardziej słodka, a za to jakby
   mniej owocowa. Podejrzewam, że partia z 2017 miała inne proporcje malin do
   borówek.
+- partia B w porównaniu z dżemem z 2017 bardziej słodka i gęstsza (trochę za
+  gęsta, wolałbym odrobinę rzadszą)
 
 
 2019-08 drugi rzut borówki
