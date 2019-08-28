@@ -128,6 +128,9 @@ Wyniki:
   odparowaniem wody), ale miał też inny kolor (bardziej nasycony i bardziej
   czerwony) i smak owoców był wyrazistszy (smakował prawie jak dżem jagodowy).
 
+- jeden słoik G zaczął pleśnieć :( moj wybór między F i G: G.
+  F za kwaśny i trochę za rzadki. G mógłby być ciut mniej słodki, ciut rzadszy
+  i ciut bardziej cytrynowy.
 
 2019-08 borówki+maliny
 ----------------------
@@ -187,3 +190,4 @@ Wyniki:
   gładką konsystencję, że daje się nalewać z garnka (przynajmniej do tych
   dużych słoików).
 
+- któryś z dużych słoików zaczął pleśniieć :/ mimo że wszystkie były mocno zassane
