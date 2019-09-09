@@ -191,3 +191,16 @@ Wyniki:
   dużych słoików).
 
 - któryś z dużych słoików zaczął pleśniieć :/ mimo że wszystkie były mocno zassane
+- oceniając w oderwaniu od pozostałych, partia K wydaje się mieć optymalną konsystencję i dobrą słodkość.
+
+maliny
+
+parametry
+
+- wszystko zgodnie z instrukcją dżemiksu
+
+wyniki
+
+- wspaniałe!
+- świetna konsystencja
+- świetny balans słodyczy i kwaśności
