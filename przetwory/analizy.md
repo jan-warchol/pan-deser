@@ -192,6 +192,10 @@ Wyniki:
 
 - któryś z dużych słoików zaczął pleśniieć :/ mimo że wszystkie były mocno zassane
 - oceniając w oderwaniu od pozostałych, partia K wydaje się mieć optymalną konsystencję i dobrą słodkość.
+- co ciekawe, nawet partia J była dobrze ścięta. Prawdopodobnie dlatego, że
+  owoce były mniejsze (bardziej wysuszone albo po prostu więcej skórki, mniej
+  miąższu)
+- w smaku prawie identyczne. W J minimalnie bardziej czuć słodycz niż w L.
 
 maliny
 
