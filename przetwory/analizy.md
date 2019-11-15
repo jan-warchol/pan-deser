@@ -165,6 +165,7 @@ Wyniki:
   borówek.
 - partia B w porównaniu z dżemem z 2017 bardziej słodka i gęstsza (trochę za
   gęsta, wolałbym odrobinę rzadszą)
+- partia D dużo rzadsza niż B.
 
 
 2019-08 drugi rzut borówki
@@ -189,6 +190,7 @@ Wyniki:
 - okazuje się, że przy dostatecznie dokładnym blendowaniu można uzyskać na tyle
   gładką konsystencję, że daje się nalewać z garnka (przynajmniej do tych
   dużych słoików).
+- ogólnie rzecz biorąc różnica w konsysencji nie była duża; nawet L była niezbyt gęsta
 
 - któryś z dużych słoików zaczął pleśniieć :/ mimo że wszystkie były mocno zassane
 - oceniając w oderwaniu od pozostałych, partia K wydaje się mieć optymalną konsystencję i dobrą słodkość.
