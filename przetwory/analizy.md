@@ -210,3 +210,11 @@ wyniki
 - wspaniałe!
 - świetna konsystencja
 - świetny balans słodyczy i kwaśności
+
+
+Wyniki po roku
+--------------
+
+B - bardzo słodkie
+
+I lepsze od H; pełniejsze w smaku (też słodsze, co niekoniecznie jest zaletą), aromat waniliowy wyczuwalny ale nie przytłacza.
