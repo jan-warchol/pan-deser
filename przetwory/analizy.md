@@ -218,3 +218,5 @@ Wyniki po roku
 B - bardzo słodkie
 
 I lepsze od H; pełniejsze w smaku (też słodsze, co niekoniecznie jest zaletą), aromat waniliowy wyczuwalny ale nie przytłacza.
+
+K i L bardzo podobne; K słodsze i minimalnie bardziej wodniste.
