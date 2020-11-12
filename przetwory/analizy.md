@@ -220,3 +220,5 @@ B - bardzo słodkie
 I lepsze od H; pełniejsze w smaku (też słodsze, co niekoniecznie jest zaletą), aromat waniliowy wyczuwalny ale nie przytłacza.
 
 K i L bardzo podobne; K słodsze i minimalnie bardziej wodniste.
+
+C mocniejsze w smaku od K i L - dość kwaśne i trochę słodsze, zdecydowanie gęstsze (aż za bardzo). Raczej gorszze od K i L.
