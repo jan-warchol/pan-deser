@@ -226,3 +226,5 @@ C mocniejsze w smaku od K i L - dość kwaśne i trochę słodsze, zdecydowanie 
 D kiepskie, rzadkie i wodniste w smaku. H dużo lepsze - świetna konsystencja, wyrazisty smak, nie za słodkie ani nie za kwaśne.
 E dużo lepsze od D. E chyba najbardziej ze wszystkich przypominają w smaku jagody.
 E i H bardzo dobre, trudno wybrać - H słodsze, E bardziej kwaskowe. H minimalnie gęstsze. 
+F wyraźnie kwaskowe, mało intensywny aromat. Konsystencja dobra. Zdecydowanie lepsze od D, ale gorsze od E.
+G słodsze od F, bardzo gęste, trochę mało intensywne ale niezłe.
