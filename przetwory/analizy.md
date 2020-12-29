@@ -228,3 +228,9 @@ E dużo lepsze od D. E chyba najbardziej ze wszystkich przypominają w smaku jag
 E i H bardzo dobre, trudno wybrać - H słodsze, E bardziej kwaskowe. H minimalnie gęstsze. 
 F wyraźnie kwaskowe, mało intensywny aromat. Konsystencja dobra. Zdecydowanie lepsze od D, ale gorsze od E.
 G słodsze od F, bardzo gęste, trochę mało intensywne ale niezłe.
+
+
+Malina-borówca
+--------------
+
+C słodsze i bardziej malinowe od B; moim zdaniem lepsze
